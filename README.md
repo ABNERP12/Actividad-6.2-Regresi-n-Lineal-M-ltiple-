@@ -1,0 +1,1 @@
+# Actividad-6.2-Regresi-n-Lineal-M-ltiple-
